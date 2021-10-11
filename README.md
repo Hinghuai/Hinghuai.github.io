@@ -16,4 +16,4 @@ But I kept myself, thanks for watching my video
 
 ありがとうございました
 
-上海二次元
+[超星网课脚本教程](https://hinghuai.github.io/超星网课脚本/超星网课脚本使用方法.md)

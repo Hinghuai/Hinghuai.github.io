@@ -21,3 +21,5 @@ But I kept myself, thanks for watching my video
 [Microsoft Office2016下载](https://hinghuai.github.io/Microsoft-Office安装/Microsoft-Office2016.html)
 
 [Microsoft Visio2016下载](https://hinghuai.github.io/Microsoft-Visio2016/Microsoft-Visio2016.html)
+
+[KMS激活软件下载](https://hinghuai.github.io/KMS24.3.0/KMS24.3.0.html)

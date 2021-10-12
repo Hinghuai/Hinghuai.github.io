@@ -18,4 +18,4 @@ But I kept myself, thanks for watching my video
 
 [超星网课脚本教程](https://hinghuai.github.io/超星网课脚本/超星网课脚本使用方法.html)
 
-[Microsoft Office2016下载](https://hinghuai.github.io/Microsoft Office安装/Microsoft Office2016.html)
+[Microsoft Office2016下载](https://hinghuai.github.io/Microsoft-Office安装/Microsoft-Office2016.html)

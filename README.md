@@ -25,3 +25,5 @@ But I kept myself, thanks for watching my video
 [KMS激活软件下载](https://hinghuai.github.io/KMS24.3.0/KMS24.3.0.html)
 
 [本人女装](https://hinghuai.github.io/dress/dress.html)
+
+[微软卸载工具下载](https://hinghuai.lanzoui.com/i5zwMv9mepg)

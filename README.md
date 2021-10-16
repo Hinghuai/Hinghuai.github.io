@@ -27,3 +27,5 @@ But I kept myself, thanks for watching my video
 [本人女装](https://t.bilibili.com/581097465854073518)
 
 [微软卸载工具下载](https://hinghuai.lanzoui.com/i5zwMv9mepg)
+
+[百度网盘满速下载教程](https://hinghuai.github.io/百度网盘满速下载教程/百度网盘满速下载教程.html)

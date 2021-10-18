@@ -31,3 +31,5 @@ It was so shameful that I couldn't watch it again
 But I kept myself, thanks for watching my video
 
 ありがとうございました
+
+我是海管2103的某位怀同学(小声)

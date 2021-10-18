@@ -29,3 +29,5 @@ But I kept myself, thanks for watching my video
 [微软卸载工具下载](https://hinghuai.lanzoui.com/i5zwMv9mepg)
 
 [百度网盘满速下载教程](https://hinghuai.github.io/百度网盘满速下载教程/百度网盘满速下载教程.html)
+
+[Tableau2019.4安装教程](https://hinghuai.github.io/Tableau2019.4安装教程/Tableau2019.4安装教程.html)
